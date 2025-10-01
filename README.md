@@ -61,7 +61,7 @@
 
 ###  Let's Connect
 -  *Resume Link*: https://drive.google.com/file/d/1L5DaiJL287FdFb7qhTz3e9D8eKaJVPzX/view?usp=sharing 
--  *LinkedIn*: [in/zaidshaikh2811](https://www.linkedin.com/in/zaidshaikh2811)  
+-  *LinkedIn*: [in/rehaanshaikh](https://www.linkedin.com/in/rehan-shaikh-02092224b/)  
 
 ---
 
